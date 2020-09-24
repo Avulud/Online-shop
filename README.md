@@ -1,1 +1,1 @@
-https://koldovsky.github.io/online-shop/
+https://Avulud.github.io/Online-shop/
